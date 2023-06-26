@@ -1,6 +1,6 @@
 Hey there 👋🏾 
 
-My name is Yevonnie (YEH-vuh-nee) 🙂
+My name is Yevonnie (YEH-vah-nee) 🙂
 
 ![dog waving hello](hello-dog.gif)
 
